@@ -1,1 +1,1 @@
-# Magical-Sefl-Heal
+# Magical-Self-Heal
